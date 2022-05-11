@@ -1,4 +1,4 @@
-Hello everyone, I’m @GermanFCG a Computer Systems Engineer that as been working mostly on Qality Assurance roles, 
+Hello everyone, I’m @GermanFCG a Computer Systems Engineer that as been working mostly on Quality Assurance roles, 
 I have knowledge in various topics related to product lifecycle, management, scrum, agile, you know the usual
 stuff, I'm quite good worker in general for these areas, but as we are in a ever evolving industry I have to learn
 and improve on the development skills I left aside when I shifted to QA, I want to improve on it so I can contribute
