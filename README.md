@@ -21,7 +21,7 @@ customer use, like phones, game consoles, computers, IoT appliances, tablets and
 of people easier, happier and better, it would be incredible that someday I can go to a friend house and see them
 using the product I helped to deliver and that it provides a great experience for them.
  
-I'm really easygoing, joke a lot and relaxed guy that really believes life can be beatufiul, doing the right things.
+I'm an easygoing huy that tends to joke a lot, I believe life can be beautiful, doing the right things.
 Well that's a bit of me, hope is something good to share.
 
 Reach me out on Twitter via: @German_FCG
